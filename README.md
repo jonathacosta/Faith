@@ -1,2 +1,0 @@
-# Faith
- Thinking about faith
